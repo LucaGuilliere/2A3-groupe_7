@@ -1,1 +1,6 @@
 # 2A3-groupe_7
+11/01/2023
+
+Luca GUILLIERE
+Nolhan TRIBOUT
+Ilya SNACEL
